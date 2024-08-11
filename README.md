@@ -1,2 +1,0 @@
-JwKPAA
-:smiling_imp:
