@@ -1,3 +1,1 @@
-It was lovely meeting you!
-It is fun chatting with you.
-KOMbin
+2020-11-16
