@@ -1,3 +1,1 @@
-2018-12-30
-:thinking:
-:satisfied:
+It’s very nice to meet you!
