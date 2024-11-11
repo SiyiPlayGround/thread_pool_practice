@@ -1,3 +1,1 @@
-2016-07-16
-:kissing_heart:
-pulsarstarprediction
+R4D1JTQA
