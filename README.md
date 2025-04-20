@@ -1,2 +1,1 @@
-2019-01-02
-:pensive:
+It is fun talking to you!
